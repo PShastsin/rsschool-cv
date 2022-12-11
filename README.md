@@ -1,1 +1,1 @@
-https://pshastsin.github.io/rsschool-cv/cv
+https://pshastsin.github.io/rsschool-cv/
